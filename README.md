@@ -2,7 +2,7 @@
 
 <br>
 
-### I'm self-taught and passionate about learning new technologies.
+### I'm self-taught programmer and passionate about learning new technologies.
 
 <br>
 
